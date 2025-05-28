@@ -76,3 +76,9 @@ Refinamos o projeto, reservamos sala e data para a oficina, organizamos a divulg
 
 ## Semana 11
 
+Feita a reunião com o pessoal da Comunicação do CT, esclarecemos algumas duvidas, definimos o título e o design da divulgação.
+
+---
+
+## Semana 12
+
