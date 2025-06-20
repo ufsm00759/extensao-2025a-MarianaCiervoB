@@ -77,9 +77,10 @@ Refinamos o projeto, reservamos sala e data para a oficina, organizamos a divulg
 ## Semana 11
 
 Finalizamos o cartaz e a mensagem de divulgação do encontro. Publicamos 3 posts no perfil do instagram ao longo da semana ([@organizacao_e_bem.estar](https://www.instagram.com/organizacao_e_bem.estar/)):
-1- explicando o projeto, justificativas e objetivos;
-2- apresentação dos integrantes do projeto;
-3- cartaz de divulgação com data, hora, local e link de inscrição.
+
+* explicando o projeto, justificativas e objetivos;
+* apresentação dos integrantes do projeto;
+* cartaz de divulgação com data, hora, local e link de inscrição.
 
 antes de postar haviamos enviado para a subdivisão de comunicação para um feedback.
 
