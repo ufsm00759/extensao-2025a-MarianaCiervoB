@@ -100,7 +100,7 @@ Infelizmente não alcançamos para além do ct, mas no formulário de feedback o
 
 ## Semana 14
 
-Encerramos o trabalho essa semana, com a preparação e organização da apostila de materiais extras, nela contém os assuntos abordados no encontro e conteúdos extras, como dicas que não cabiam no dia e indicações de filmes, podcasts e livros.
+Encerramos o trabalho essa semana, com a preparação e organização da [apostila](https://www.canva.com/design/DAGqQIwfwYI/U80wdqAOWJE-Svkdm5ojlw/edit?utm_content=DAGqQIwfwYI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton) de materiais extras, nela contém os assuntos abordados no encontro e conteúdos extras, como dicas que não cabiam no dia e indicações de filmes, podcasts e livros.
 durante essa semana também acompanhamos o grupo da proposta de inicio de hobbie novo.
 Tivemos uma reunião por meet também para alinhar a questão da produção dos certificados.
 
