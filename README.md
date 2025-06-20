@@ -76,9 +76,36 @@ Refinamos o projeto, reservamos sala e data para a oficina, organizamos a divulg
 
 ## Semana 11
 
-Feita a reunião com o pessoal da Comunicação do CT, esclarecemos algumas duvidas, definimos o título e o design da divulgação.
+Finalizamos o cartaz e a mensagem de divulgação do encontro. Publicamos 3 posts no perfil do instagram ao longo da semana ([@organizacao_e_bem.estar](https://www.instagram.com/organizacao_e_bem.estar/)):
+1- explicando o projeto, justificativas e objetivos;
+2- apresentação dos integrantes do projeto;
+3- cartaz de divulgação com data, hora, local e link de inscrição.
+
+antes de postar haviamos enviado para a subdivisão de comunicação para um feedback.
 
 ---
 
 ## Semana 12
 
+Foi divulgado no email e no grupo de whatsapp o encontro. trabalhamos na produção dos slides e elaboração do material que iriamos apresentar.
+
+---
+
+## Semana 13
+
+Realizamos o encontro, o tempo acabou sendo curto mas graças à participação muito bem-vinda dos integrantes.
+Infelizmente não alcançamos para além do ct, mas no formulário de feedback os partcipantes mostraram que ficaram bem satisfeitos. Acredito que o Psicólogo Renato também gostou, pareceu bem interessado.
+
+---
+
+## Semana 14
+
+Encerramos o trabalho essa semana, com a preparação e organização da apostila de materiais extras, nela contém os assuntos abordados no encontro e conteúdos extras, como dicas que não cabiam no dia e indicações de filmes, podcasts e livros.
+durante essa semana também acompanhamos o grupo da proposta de inicio de hobbie novo.
+Tivemos uma reunião por meet também para alinhar a questão da produção dos certificados.
+
+---
+
+## Semana 15
+
+Nessa semana ocorreu o último encontro com toda a turma e todos os grupos, oficialmente encerrando a cadeira! Realizamos uma retrospectiva e conversa sobre os projetos ao longo do semestre.
